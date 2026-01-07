@@ -2,6 +2,8 @@
 
 > Video hướng dẫn: [Xem tại đây](https://drive.google.com/file/d/1xXZ-IXxMqBVU8TrOuHTWQJ_35uZhr2XI/view?usp=sharing)
 
+> Video demo: [Xem tại đây](https://www.tiktok.com/@dr.gifter306/video/7592427281323232530)
+
 ![image](https://github.com/user-attachments/assets/67b442cf-3b8d-4f7e-b634-962fcb9a597c)
 
 ---
